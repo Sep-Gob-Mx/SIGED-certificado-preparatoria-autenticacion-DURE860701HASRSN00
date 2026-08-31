@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DURE860701HASRSN00
+DURE860701HASRSN00
